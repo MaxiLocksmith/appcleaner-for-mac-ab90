@@ -1,4 +1,4 @@
-
+AppCleaner for macOS instant Automation - menu-bar-customization and automated-tasks offers the most advanced AppCleaner for macOS automation, with menu-bar-customization and
 
 
 
